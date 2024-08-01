@@ -1,16 +1,13 @@
-## Hi there 👋
+## opa meu bão tmj ❤️ se for o prof joão pode ir embora (zoas)
 
-<!--
-**ashbotura/ashbotura** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é Rafael botura mas pode me chamar de Ash 
 
-Here are some ideas to get you started:
+- estou estudando alura (forçadamente)
+- tenho 16 anos :D
+- gosto de RPG
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ### você pode entrar em contato comigo por 📫
+
+rafaelbotura18@gmail.com
+
+![](https://media1.tenor.com/m/i46nEmsCh3MAAAAd/guizo-some-guizo.gif)
