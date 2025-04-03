@@ -1,4 +1,4 @@
-## opa meu bão tmj ❤️ se for o prof joão pode ir embora (zoas)
+## opa meu bão tmj ❤️ 
 
 meu nome é Rafael botura mas pode me chamar de Ash 
 
