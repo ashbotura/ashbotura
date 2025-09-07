@@ -3,7 +3,7 @@
 meu nome é Rafael botura mas pode me chamar de Ash 
 
 - estou estudando alura (forçadamente)
-- tenho 16 anos :D
+- tenho 17 anos :D
 - gosto de RPG
 
  ### você pode entrar em contato comigo por 📫
